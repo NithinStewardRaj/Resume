@@ -3,4 +3,4 @@
 
 
 
-This is my resume @ present nd will get updated every  month;)
+This is my resume @ present and will get updated every  month;)
